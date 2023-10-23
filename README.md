@@ -20,4 +20,4 @@ CHEERS !
 
 ALSO AS A SIDE NOTE
 When i desingned this i did't have the expertiece that i have now on fusion 360, so, lmk if something can change
-![Preview]((https://imgur.com/a/6kzqsjA)https://imgur.com/a/6kzqsjA](https://imgur.com/peBWVK3)https://imgur.com/peBWVK3)
+![Preview]((https://imgur.com/a/6kzqsjA)https://imgur.com/a/6kzqsjA](https://imgur.com/peBWVK3)https://imgur.com/peBWVK3](https://imgur.com/peBWVK3)https://imgur.com/peBWVK3)
