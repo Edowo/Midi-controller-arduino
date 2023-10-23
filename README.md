@@ -16,3 +16,7 @@ the 3D printed parts
 
 Maybe in the future i will update this, if you found it and you are interested in this, LMK. 
 CHEERS ! 
+
+
+ALSO AS A SIDE NOTE
+When i desingned this i did't have the expertiece that i have now on fusion 360, so, lmk if something can change
